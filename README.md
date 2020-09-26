@@ -1,2 +1,2 @@
 # comment
-https://www.edjdhbb.com的评论
+https://www.edjdhbb.com
